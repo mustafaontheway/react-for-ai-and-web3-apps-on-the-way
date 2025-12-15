@@ -1,3 +1,3 @@
-# React for AI &amp; Web3 Apps (2026-2027)
+AI &amp; Web3 Apps (2026-2027)
 
 Wait...
